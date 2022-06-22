@@ -4,7 +4,7 @@
 |-----------------------------------------------------------------|-------------|
 | The Abortion Rights Campaign                                    | 2012        |
 | ARN – Anti-Racism Network Ireland                               | 2010        |
-| Bi+ Ireland                                                     |             |
+| Bi+ Ireland                                                     | 2014            |
 | Choice Ireland                                                  | 2014        |
 | Galway Pro-Choice                                               | 2012        |
 | Gay Community News                                              | 1988        |
